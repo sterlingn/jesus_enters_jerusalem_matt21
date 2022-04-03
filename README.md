@@ -1,4 +1,4 @@
-# jesus_enters_jerusalem_matt21
+# Jesus Enters Jerusalem Matt 21
 
 
 ### 1. Who was ruling during the time of Jesus' ride through Jerusalem on a donkey?
@@ -35,6 +35,9 @@ bethany-jerusalem-map
 
 > Note: I keep providing this link of references to other prophecies that were foretold in the Old Testament and came to fruition in the New Testament: https://parish.rcdow.org.uk/swisscottage/wp-content/uploads/sites/52/2014/11/44-Prophecies-Jesus-Christ-Fulfilled.pdf
 
+### 7. What does 10,000 people look like, in verses 8-9?
+![image](https://blog.terischure.com/wp-content/uploads/2020/04/10000-People.jpg)
 
+> Source: https://blog.terischure.com/60000-dead-my-friends/
 
 
